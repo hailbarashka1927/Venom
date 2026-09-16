@@ -210,4 +210,4 @@ Venom is provided as a **full free version** with all features and updates inclu
 Experience the world of entertainment like never before! [Download Venom free now](https://www.softyne.com/venom) and unlock endless possibilities with your Kodi media center.
 
 ---
-**Last updated:** 2026-09-16 03:47:48 UTC
+**Last updated:** 2026-09-16 09:08:29 UTC
